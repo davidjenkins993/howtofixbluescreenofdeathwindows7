@@ -14,7 +14,7 @@ I googled it on Internet and then I decide to try with this software. Yes, I cho
 Best <a href="http://www.tucows.com/preview/1594748">Blue Screen Of Death</a> Fixer Software, fix PC errors in 3 Steps!<br />
 
 Blue Screen of Death Fixer is world\'s top award-winning registry cleaner with millions of downloads. It is so popular
-within the mass of the population as the powerful functions Blue Screen of Death Fixer has. Downloading <a href="http://www.hello-wold.com/">Blue Screen of 
+within the mass of the population as the powerful functions Blue Screen of Death Fixer has. Downloading <a href="http://smart-blue-screen-of-death-fixer-pro.soft112.com/">Blue Screen of 
 Death</a> Fixer practically gives the users eight various products in a single package. So just pay once and gain a variety 
 of benefits.<br /><br />
 
@@ -22,4 +22,10 @@ Then how to fix Blue Screen of Death via Smart Blue Screen Of Death Fixer Pro?<b
 
 1. Download and Install Blue Screen of Death Fixer.<br />
 2. Click "Quick Scan" button to Scan Your Computer.<br />
-3. Click the "Repair All" button and then the problem will be gone completely! <br />
+3. Click the "Repair All" button and then the problem will be gone completely! <br /><br />
+
+Author recommends: <br />
+<a href="http://www.youtube.com/watch?v=Ie7QRIUACSY">Windows blue screen of death</a><br />
+<a href="https://github.com/fhiosdyoung/BSOD">The blue screen of death</a><br />
+<a href="https://archive.org/details/HowToFixSmartBlueScreenOfDeathFixer">How to fix Blue screen of death</a><br />
+<a href="https://github.com/rocajoseph/howtofixbluescreenofdeath">Blue screen errors</a><br />
